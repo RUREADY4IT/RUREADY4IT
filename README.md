@@ -1,0 +1,2 @@
+ My name is Ernest I'm Australia my interests are regeneration of degenerated land  and water space our place within it. With recent events learning to cultivate to the challenges of climate change and numerous other factors seems paramount. I usually study a vast arrange of fields and finds connections or patterns to link events to wringe out information that is not available. A self taught method with surprising results which can be applied to all fields as every field is connected 
+ 
